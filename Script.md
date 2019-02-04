@@ -3,7 +3,7 @@
 ## Synopsis
 
 A young boiy discovers a hidden gate behind the zoo.
-Behind it, he finds a magical world of unicorns living in perfect piece and harmony where he discovers the meaning of imagination.
+Behind it, he finds a magical world of unicorns living in perfect piece and harmony where he discovers the meaning of imagination.  Braus enters the scene
 
 ## Plot
 
